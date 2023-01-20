@@ -1,1 +1,2 @@
 Caleb Shilling
+shillinc@oregonstate.edu
